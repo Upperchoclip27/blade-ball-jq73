@@ -1,4 +1,4 @@
-
+Experience blade ball like never before with advanced blade ball Script, the #1 Script. Includes no clip and auto-upgrade for unbeatable performance.
 
 
 
